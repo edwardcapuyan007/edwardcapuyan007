@@ -6,6 +6,3 @@
 - 📫 How to reach me? Use my email: edwardcapuyan07@outlook.com for inquiries.
 - 😄 Pronouns: he/him/his (I am a male student)
 - ⚡ Fun fact: My dad taught me how to use a computer back in 2020.
-
-**Profile Link:**
-`github.com/EdwardCapuyan07`
